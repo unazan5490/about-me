@@ -15,4 +15,4 @@
 ---  
 Afterschool, I go to my job. For my job, I first need to go to P.S. 321 to pick up my class. From  
 there, we go down two blocks to the CBE cite.  
-TRhe kids have snack then go to their classes for the day
+The kids have snack then go to their classes for the day
